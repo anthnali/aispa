@@ -1,2 +1,0 @@
-# aispa
-i like poopoo
